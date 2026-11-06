@@ -1,2 +1,2 @@
-# okinz-store.com
+# okingz-store.com
 MIRA-O'KINGZ IMPORTS 
